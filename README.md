@@ -1,1 +1,0 @@
-# GIS-Analysis-Panipokhari-Urban-Heat-Greening
